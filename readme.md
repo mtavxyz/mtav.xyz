@@ -6,8 +6,6 @@
 ## 蜜桃AV · 永久域名（须翻墙）
 > [https://mtav.xyz](https://mtav.xyz?ref=github)
 > 
-> [https://mtav.xyz](http://mtav.xyz?ref=github)
-> 
 > 记住上面的域名，不会迷路！!
 
 
