@@ -10,6 +10,6 @@
 
 
 ## 蜜桃AV · 回家邮箱
-> mtav99@gmail.com
+> mtavxyz@gmail.com
 > 
-> 发送任意邮件到 mtav99@gmail.com 自动回复最新地址！
+> 发送任意邮件到 mtavxyz@gmail.com 自动回复最新地址！
