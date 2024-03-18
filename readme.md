@@ -1,4 +1,6 @@
 ## 蜜桃AV · 最新网址（2024.03.09 最后编辑时间）
+> 手机自带浏览器可能会屏蔽，换用第三方浏览器即可！
+> 
 > 最新域名：[https://mtav.xyz](https://mtav.xyz?ref=github)
 >
 > 老域名：[https://mtav.xyz](https://mtav.xyz?ref=github)
